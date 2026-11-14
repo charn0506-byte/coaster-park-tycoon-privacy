@@ -1,0 +1,1 @@
+# coaster-park-tycoon-privacy
